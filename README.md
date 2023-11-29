@@ -1,3 +1,2 @@
-# app-dev
-My first repository
-# H2
+# Anime Series
+## 1. **Attack on Titan**
