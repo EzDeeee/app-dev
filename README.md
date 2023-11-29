@@ -26,3 +26,16 @@
 > - Kainan
 > - Ryonan
 > - Shoyo
+## 3. **Kuroko's Basketball**
+- Characters
+> - Tetsuya Kuroko
+> - Taiga kagami
+> - Teppei Kiyoshi
+> - Junpei Hyuga
+> - Shun Izuki
+- Generation Of Miracles
+> - Seijiro Akashi
+> - Shintaro Midorima
+> - Ryota Kise
+> - Daiki Aomine
+> - Atsushi Murasakibara
