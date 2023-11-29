@@ -1,2 +1,2 @@
 # Anime Series
-## 1. **Attack on Titan**
+## 1. ** Attack on Titan **
